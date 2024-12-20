@@ -1,0 +1,1 @@
+# IntelliSpell-Intelligent-Spelling-Correction-
